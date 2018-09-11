@@ -11,3 +11,8 @@ Stefan Alexander Bo Olsdal (31 March 1974). He moved to Luxembourg when he was y
 He plays the bass, guitar, piano, keyboards, double bass, Omnichord, xylophone, glockenspiel, drums, percussion, dulcimer, and also vocals. He has stated that some of his influences have been **Depeche Mode** and Eurythmics among others.
 
 He is openly gay. He came out publicly in an interview in Melody Maker in 1996. Olsdal and his partner David Amen have a son.
+
+## Partial Members
+Robert Schultzberg
+Steve Hewitt
+Steve Forrest
