@@ -12,7 +12,7 @@ Released on February 18, 2013 by Captured Tracks.
 - Frontman **Dustin Payseur** about the album
 
 ## Somersalut (2017)
-Released on June 2, 2017. Orchestral pop gem “*Saint Ivy*” shines with plucked strings, buoyant basslines and a propulsive, wayward, guitar. “Tangerine," a driving, tightly wound melody, rushes forward and briefly leaves the ground due to the gossamer guest vocals of Slowdive’s Rachel Goswell. The effervescent “Rise," which hinges on the spoken word of Gavin Mays (Cities Aviv) discussing a failed relationship, hangs, like many recent breakups, in a sense of suspension. The cloudy, wistful “Social Jetlag,” bustling with samples of crowded streets, features the type of candid, off-the-cuff lyrics that make the entire effort immediately illuminating.
+Released on June 2, 2017. Orchestral pop gem “Saint Ivy” shines with plucked strings, buoyant basslines and a propulsive, wayward, guitar. “Tangerine," a driving, tightly wound melody, rushes forward and briefly leaves the ground due to the gossamer guest vocals of Slowdive’s Rachel Goswell. The effervescent “Rise," which hinges on the spoken word of Gavin Mays (Cities Aviv) discussing a failed relationship, hangs, like many recent breakups, in a sense of suspension. The cloudy, wistful “Social Jetlag,” bustling with samples of crowded streets, features the type of candid, off-the-cuff lyrics that make the entire effort immediately illuminating.
 
 Somersault evokes the laid-back mood of a warm, breezy city night, the air crackling with humidity and excitement. These songs pulse and pull, capturing a blend of promise and heartache. It’s beautiful and layered, a refined, sweeping creation that threads together numerous styles, textures, and themes into a **refreshing**, singular vision.
 
