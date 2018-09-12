@@ -1,4 +1,5 @@
 # Albums
+Estos son los albumes de placebo
 
 ## Placebo (1996)
  It was released on 16 July 1996 by record label Hut. It is the only album recorded with drummer Robert Schultzberg before his departure from the group.
